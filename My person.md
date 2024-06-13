@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ImSad
+- 👀 I’m interested in: Drugs
+- 🌱 I’m currently learning: Making METHAMPHETAMINE
+- 💞️ I’m looking to collaborate on: Virus/malwares
+- 📫 How to reach me: In hospice
+- 😄 Pronouns: HELICOPTER/COMBAT
+- ⚡ Fun fact: I love waifus 2D
